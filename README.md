@@ -1,0 +1,2 @@
+# kecerdasan-buatan-p12
+ 
